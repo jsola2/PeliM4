@@ -1,1 +1,1 @@
-El señor de los anillos
+El senyor dels anells
